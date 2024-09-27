@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on something
 - 📫 How to reach me no
-- 😄 Pronouns: him
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: i have the biggest booty in all the history of universe
 
 <!---
